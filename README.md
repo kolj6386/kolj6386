@@ -11,7 +11,6 @@
 
 - ⚡ Fun fact **I have a awesome campervan that I love nothing more then spending time in!**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
